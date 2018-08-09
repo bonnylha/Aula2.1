@@ -1,3 +1,3 @@
-Balboa
-Lucy
-Zelda
+Hillsong
+Anthony Evans
+Jeremy
